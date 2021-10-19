@@ -1,0 +1,2 @@
+- Hi, I’m @vale-xu, I have 16 years
+- I’m interested in the language of software, video games and music
